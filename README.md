@@ -66,9 +66,9 @@ A dedicated Network & ICT Support Technician with strong hands-on experience in 
 
 ## 📫 **Contact Me**
 
-📧 Email: **[mohammadobaidy24@gmail.com](mailto:mohammadobaidy24@gmail.com)**
+📧 Email: **[mobaidy24@gmail.com](mailto:mobaidy24@gmail.com)**
 🌍 Location: **Afghanistan**
-💼 GitHub: **github.com/mohammadobaidy24**
+💼 GitHub: **github.com/mobaidy24**
 
 ---
 
